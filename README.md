@@ -1,0 +1,1 @@
+# aibankjp.github.io
